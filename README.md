@@ -1,0 +1,2 @@
+# premium-offset-tong-001-offset-tong-forging-jaw-prof
+Tired of losing track of your offset tong forging projects and struggling to replicate jaw profiles with precision? Stop piecing together scattered notes—craft each tong with a repeatable, workshop-tested system.  This template solves the chaos of ad‑hoc forging by giving you a dedicated workspace to plan, execute, and refine every offset tong. It’
